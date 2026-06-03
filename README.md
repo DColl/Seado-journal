@@ -1,0 +1,1 @@
+# Seado-journal
